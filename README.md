@@ -1,1 +1,3 @@
-# BorealisCream
+The antioxidants in Borealis Cream deeply penetrates into the skin and reverse the aging method at the cellular level. Vitamin C creates a protecting barrier against the actinic ray rays. It conjointly strengthens the wetness holding capability of the skin and therefore increasing the association level of skin. How to apply this cream? <a href="http://skinsephora.com/borealis-cream-review/">Borealis Cream</a>  It is very straightforward to use Borealis Cream  as a result of it's light-weight in texture and non-greasy. Follow these easy 3 steps: Step 1: wash face along with your daily face wash or formulation. Step 2: Dry you face with a towel. Step 3: Take the specified quantity of cream apply complete your face and neck. Massage gently till it's absorbed into the skin. advantages of Borealis Cream: 
+
+http://skinsephora.com/borealis-cream-review/ ‎
